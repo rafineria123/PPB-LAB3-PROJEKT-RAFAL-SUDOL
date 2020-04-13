@@ -1,1 +1,0 @@
-# PPB-LAB3-PROJEKT
